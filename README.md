@@ -1,5 +1,5 @@
-- 👋  @nerviadx
-- 👀  excel dataviz horology globalist
+- 👋  @nrvvdx
+- 👀  excel dataviz horology SL
 - 🌱 alo GITHUB
-- 💞️ I’m looking to find my friend... Ferdinand ...
+- 💞️ i try to find my friend... Ferdinand
 - 📫 alo>?
