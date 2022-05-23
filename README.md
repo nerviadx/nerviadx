@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @nerviadx
-- 👀 I’m interested in horology
-- 🌱 I’m currently learning GITHUB
+- 👋  @nerviadx
+- 👀  excel dataviz horology globalist
+- 🌱 alo GITHUB
 - 💞️ I’m looking to find my friend... Ferdinand ...
-- 📫 How to reach me ... here 
+- 📫 alo>?
